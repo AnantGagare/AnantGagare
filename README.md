@@ -1,4 +1,3 @@
-<!---
-AnantGagare/AnantGagare is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+A highly organized and hard-working individual looking for a responsible position to gain practical experience and to
+enhance my educational and professional skills in a dynamic workplace.
+
